@@ -26,9 +26,9 @@ Please click on this loom link to have a glimpse of my website
 
 https://www.loom.com/share/be77a8f261264fba9f74a2aa6dcf055e?sid=65f03873-1a16-4847-8ebe-5c0a7a0696f3 
 
-
 Video  created with ...  
 Loom
+
 
 ## Notes
 
